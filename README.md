@@ -1,1 +1,1 @@
-# YUry-Solo
+# Yury-Solo
